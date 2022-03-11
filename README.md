@@ -1,5 +1,5 @@
 #About me
 
-I'm a Tech Leader, FrontEnd Developer.
+I'm a Project Manager, Tech Leader & Developer.
 
 I enjoy the challenges,
